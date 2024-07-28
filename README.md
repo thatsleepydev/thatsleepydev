@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @thatsleepydev
+- 👀 I’m interested in coding random stuff and gorilla tag mods
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me email ig
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: my name is sleepy but ironically i find it hard to sleep at night
